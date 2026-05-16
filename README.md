@@ -1,4 +1,4 @@
-# 🚨 Discord-Reality-Check
+# 🚨 Discord-Safety-Fraud
 
 **Federal lawsuits. State investigations. A "Dirty Dozen" listing for the 5th time. Monthly CSAM indictments. Design features that enable predators. A company that delays safety to prioritize growth.**
 
